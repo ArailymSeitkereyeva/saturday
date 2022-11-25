@@ -8,10 +8,4 @@ add some features
 
 writing code 
 
-filgiulfuil
-
-dtydtykidukhjk
-
-dtyfufiufilfkjhl
-
-fujkfhukghk
+after push let's train pull
